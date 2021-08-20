@@ -64,7 +64,7 @@ Avis is based out of Maryland, a future Software Engineer , and beacon of hope i
 Check out his [LinkedIn](https://www.linkedin.com/in/avisnesbittjr/) and [GitHub!](https://github.com/avisjrjr)
 
 ### Boyoon Chang
-![Screenshot 2](https://pbs.twimg.com/profile_images/378800000090674240/f132e89a329f8c62a2a53ed1122f5c58.jpeg)
+Boyoon (Bo) is based out of Seoul, Korea, currently lives in Eugene, Oregon. She's an occassional swimmer and likes electric dance music. Check out her [LinkedIn](https://www.linkedin.com/in/boyoon-chang/) and [Github!](https://github.com/boyoon-c)
 
 ### Chitra Son
 ![Screenshot 3](https://i.pinimg.com/474x/67/55/ab/6755ab1a95a5de85dafae71b007ba884.jpg)
